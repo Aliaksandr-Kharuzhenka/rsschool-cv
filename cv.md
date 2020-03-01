@@ -8,3 +8,4 @@
 ### Education: *2010 - 2015: Thе Academy of the Ministry of Internal Affairs of the Republic of Belarus; november 2019 - present time: online progromming courses "Javarush"*
 ### My strong qualities: *Hardworking, honesty, attentiveness, diligence, stress tolerance, accuracy, determination, initiative, ability to work in a team, emotional stability, desire to work and develop, ability to work with a large amount of information, analytical mindset, desire to improve and to study something new, willingness to work as long as needed*
 ### English level: *low intermidiate (B1)
+### Hobbies: *Football (have the first adult level in football)*
